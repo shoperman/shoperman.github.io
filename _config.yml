@@ -19,7 +19,7 @@
 text_skin: default # "orange" (default), "dark", "forest", "ocean", "chocolate", "orange"
 highlight_theme: default # "default" (default), "tomorrow", "tomorrow-night", "tomorrow-night-eighties", "tomorrow-night-blue", "tomorrow-night-bright"
 url     : https://shoperman.github.io # the base hostname & protocol for your site e.g. https://www.someone.com
-baseurl : # does not include hostname
+baseurl  :https://shoperman.github.io # does not include hostname
 title   :쇼핑하는 남자
 description: > # this means to ignore newlines until "Language & timezone"
   상품 정보 안내 사이트
