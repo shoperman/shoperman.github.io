@@ -31,7 +31,7 @@ pin: true
 
 ## 1. 일반유심-KT skylife모바일 유심비지원 사은품 알뜰폰 자급제 LTE/5G 갤럭시/Z플립/아이폰 15 사용가능 kt skylife
 
-![알뜰폰요금제 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/426663614727954-9e7bae32-083a-4c71-b229-4f8ddb0c20c5.jpg)
+[![알뜰폰요금제 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/426663614727954-9e7bae32-083a-4c71-b229-4f8ddb0c20c5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7612664086&traceid=V0-153&itemId=20165417185&vendorItemId=87257762310)
 
 
 👍 [일반유심-KT skylife모바일 유심비지원 사은품 알뜰폰 자급제 LTE/5G 갤럭시/Z플립/아이폰 15 사용가능 kt skylife <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7612664086&traceid=V0-153&itemId=20165417185&vendorItemId=87257762310) 👌 
@@ -49,7 +49,7 @@ pin: true
 
 ## 2. [화면크고 깨끗한 6만원짜리 폴더폰] LG스마트폴더 와인스마트폴더 삼성폴더 공기계 중고폰 효도폰 유심기변 세컨폰 유심만 끼우시고 바로 사용하세요.
 
-![알뜰폰요금제 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4d52/6eb7999fe16902577a55701156467b2e2243dbc2e8dc7ca99d147fd574c8.jpg)
+[![알뜰폰요금제 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4d52/6eb7999fe16902577a55701156467b2e2243dbc2e8dc7ca99d147fd574c8.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7541637261&traceid=V0-153&itemId=19827287017&vendorItemId=86608427334)
 
 
 👍 [[화면크고 깨끗한 6만원짜리 폴더폰] LG스마트폴더 와인스마트폴더 삼성폴더 공기계 중고폰 효도폰 유심기변 세컨폰 유심만 끼우시고 바로 사용하세요. <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7541637261&traceid=V0-153&itemId=19827287017&vendorItemId=86608427334) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. 유심-U+ 유모바일 알뜰폰 유심 사은품 증정 4G/5G요금제 갤럭시S/아이폰15 사용가능
 
-![알뜰폰요금제 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1173486187595276-678f604d-b7b6-4145-962f-80a9bf302f24.png)
+[![알뜰폰요금제 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1173486187595276-678f604d-b7b6-4145-962f-80a9bf302f24.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4353567748&traceid=V0-153&itemId=5110839155&vendorItemId=72420368481)
 
 
 👍 [유심-U+ 유모바일 알뜰폰 유심 사은품 증정 4G/5G요금제 갤럭시S/아이폰15 사용가능 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4353567748&traceid=V0-153&itemId=5110839155&vendorItemId=72420368481) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. 유심-KT M모바일 LTE/5G 요금제 갤럭시/Z플립5/아이폰15 자급제 사용가능
 
-![알뜰폰요금제 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8841884629224579-58fc76ab-993d-472a-a332-49a202bb0f5f.png)
+[![알뜰폰요금제 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8841884629224579-58fc76ab-993d-472a-a332-49a202bb0f5f.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4751115993&traceid=V0-153&itemId=6046004633&vendorItemId=73343366752)
 
 
 👍 [유심-KT M모바일 LTE/5G 요금제 갤럭시/Z플립5/아이폰15 자급제 사용가능 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4751115993&traceid=V0-153&itemId=6046004633&vendorItemId=73343366752) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. 유심-U+ 유모바일 알뜰폰 유심 사은품 증정 4G/5G요금제 갤럭시S/아이폰15 사용가능
 
-![알뜰폰요금제 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1173486187595276-678f604d-b7b6-4145-962f-80a9bf302f24.png)
+[![알뜰폰요금제 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1173486187595276-678f604d-b7b6-4145-962f-80a9bf302f24.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4353567748&traceid=V0-153&itemId=5110839155&vendorItemId=72420368481)
 
 
 👍 [유심-U+ 유모바일 알뜰폰 유심 사은품 증정 4G/5G요금제 갤럭시S/아이폰15 사용가능 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4353567748&traceid=V0-153&itemId=5110839155&vendorItemId=72420368481) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. 유심-KT M모바일 LTE/5G 요금제 갤럭시/Z플립5/아이폰15 자급제 사용가능
 
-![알뜰폰요금제 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8841884629224579-58fc76ab-993d-472a-a332-49a202bb0f5f.png)
+[![알뜰폰요금제 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8841884629224579-58fc76ab-993d-472a-a332-49a202bb0f5f.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4751115993&traceid=V0-153&itemId=6046004633&vendorItemId=73343366752)
 
 
 👍 [유심-KT M모바일 LTE/5G 요금제 갤럭시/Z플립5/아이폰15 자급제 사용가능 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4751115993&traceid=V0-153&itemId=6046004633&vendorItemId=73343366752) 👌 
@@ -139,7 +139,7 @@ pin: true
 
 ## 7. [절대급 인터넷이 안되는 폴더폰] 피처폰 공기계 공신폰 중고폰 피처폰 유심기변 효도폰 세컨폰 유심만 끼우시고 바로 사용하세요.
 
-![알뜰폰요금제 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/3322/ef510a86c4f26a37d554affaf1e88776a5f3968c106673773e17a174608c.jpg)
+[![알뜰폰요금제 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/3322/ef510a86c4f26a37d554affaf1e88776a5f3968c106673773e17a174608c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7468718508&traceid=V0-153&itemId=19484077537&vendorItemId=86594093687)
 
 
 👍 [[절대급 인터넷이 안되는 폴더폰] 피처폰 공기계 공신폰 중고폰 피처폰 유심기변 효도폰 세컨폰 유심만 끼우시고 바로 사용하세요. <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7468718508&traceid=V0-153&itemId=19484077537&vendorItemId=86594093687) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. SK세븐모바일 알뜰폰 무약정 요금제 데이터 무제한 유심
 
-![알뜰폰요금제 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/5848531096719805-0bff8c7f-dce1-43d2-b718-423085d0840b.png)
+[![알뜰폰요금제 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/5848531096719805-0bff8c7f-dce1-43d2-b718-423085d0840b.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7589990974&traceid=V0-153&itemId=20054441268&vendorItemId=87150580503)
 
 
 👍 [SK세븐모바일 알뜰폰 무약정 요금제 데이터 무제한 유심 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7589990974&traceid=V0-153&itemId=20054441268&vendorItemId=87150580503) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. 유심-미니게이트 일반유심 KT알뜰폰 무약정 요금제 데이터 무제한 유심요금제
 
-![알뜰폰요금제 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/771927089536427-da219024-4f44-4d24-a33b-19907cccd640.png)
+[![알뜰폰요금제 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/771927089536427-da219024-4f44-4d24-a33b-19907cccd640.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7717006765&traceid=V0-153&itemId=20700082432&vendorItemId=87771314642)
 
 
 👍 [유심-미니게이트 일반유심 KT알뜰폰 무약정 요금제 데이터 무제한 유심요금제 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7717006765&traceid=V0-153&itemId=20700082432&vendorItemId=87771314642) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 10. 스타일 폴더 32GB AT-M120 공기기 공기계 미개봉 새제품 공신폰 학생폰 효도폰 알뜰폰, 화이트
 
-![알뜰폰요금제 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/fd71/8c17ce62b52228ba41094c1a24e63a7d26c5a0a8314d78910cc6be68ab91.jpeg)
+[![알뜰폰요금제 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/fd71/8c17ce62b52228ba41094c1a24e63a7d26c5a0a8314d78910cc6be68ab91.jpeg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7632446353&traceid=V0-153&itemId=20260465061&vendorItemId=87348018412)
 
 
 👍 [스타일 폴더 32GB AT-M120 공기기 공기계 미개봉 새제품 공신폰 학생폰 효도폰 알뜰폰, 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7632446353&traceid=V0-153&itemId=20260465061&vendorItemId=87348018412) 👌 

@@ -24,7 +24,7 @@ pin: true
 
 ## 1. 태국유심 AIS True Dtac 데이터 무제한, AIS 8일 5G속도 15GB이후 3G속도 무제한
 
-![방콕유심 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7ce2/eab3ee1c2bfbcc058490b1a274b736f1a2772c987f9220a987dca3623183.jpg)
+[![방콕유심 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7ce2/eab3ee1c2bfbcc058490b1a274b736f1a2772c987f9220a987dca3623183.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7635313931&traceid=V0-153&itemId=20273465323&vendorItemId=85740529023)
 
 
 👍 [태국유심 AIS True Dtac 데이터 무제한, AIS 8일 5G속도 15GB이후 3G속도 무제한 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7635313931&traceid=V0-153&itemId=20273465323&vendorItemId=85740529023) 👌 
@@ -42,7 +42,7 @@ pin: true
 
 ## 2. 태국유심 DTAC 50GB 10일 무제한 통화+문자 5G 한국발신 30분 방콕 치앙마이 푸켓 여행용 유심칩 태국 유심, 50GB 10일 통화+문자, 1개
 
-![방콕유심 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d7fd/2e1c0b3e3bfdd006154911bf37ca55bfc45825ea8fcf81b79c92b14978b1.jpg)
+[![방콕유심 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d7fd/2e1c0b3e3bfdd006154911bf37ca55bfc45825ea8fcf81b79c92b14978b1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7663509866&traceid=V0-153&itemId=20423193907&vendorItemId=87504577759)
 
 
 👍 [태국유심 DTAC 50GB 10일 무제한 통화+문자 5G 한국발신 30분 방콕 치앙마이 푸켓 여행용 유심칩 태국 유심, 50GB 10일 통화+문자, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7663509866&traceid=V0-153&itemId=20423193907&vendorItemId=87504577759) 👌 
@@ -60,7 +60,7 @@ pin: true
 
 ## 3. [eSIM] 태국 eSIM 데이터 무제한 방콕 푸켓 유심 아이폰e심 도시락eSIM
 
-![방콕유심 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00021417/b2fbe65e-f7ee-448b-b2bb-9320ebb08426.jpg)
+[![방콕유심 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00021417/b2fbe65e-f7ee-448b-b2bb-9320ebb08426.jpg)](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000654018&traceid=V0-153&itemId=None&vendorItemId=None)
 
 
 👍 [[eSIM] 태국 eSIM 데이터 무제한 방콕 푸켓 유심 아이폰e심 도시락eSIM <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000654018&traceid=V0-153&itemId=None&vendorItemId=None) 👌 
@@ -78,7 +78,7 @@ pin: true
 
 ## 4. 심통 동남아 6개국 공용 유심칩, 5일, 매일 1GB 소진후 저속무제한
 
-![방콕유심 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/113543373898431-c452ea54-1d5e-414d-92b4-418559a9e9be.jpg)
+[![방콕유심 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/113543373898431-c452ea54-1d5e-414d-92b4-418559a9e9be.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7324744170&traceid=V0-153&itemId=18849999716&vendorItemId=85979346908)
 
 
 👍 [심통 동남아 6개국 공용 유심칩, 5일, 매일 1GB 소진후 저속무제한 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7324744170&traceid=V0-153&itemId=18849999716&vendorItemId=85979346908) 👌 
@@ -96,7 +96,7 @@ pin: true
 
 ## 5. 태국유심 AIS 트루 인천공항 데이터무제한 방콕 푸켓 여행 유심칩 5일 8일, AIS 7일 15GB+인천공항수령, 1개
 
-![방콕유심 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/017c/c79f6810a08e9d81e6eb2d331e9559f62dbf0660d182c82df9a29de66d91.png)
+[![방콕유심 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/017c/c79f6810a08e9d81e6eb2d331e9559f62dbf0660d182c82df9a29de66d91.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7673300218&traceid=V0-153&itemId=20475511707&vendorItemId=3429190084)
 
 
 👍 [태국유심 AIS 트루 인천공항 데이터무제한 방콕 푸켓 여행 유심칩 5일 8일, AIS 7일 15GB+인천공항수령, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7673300218&traceid=V0-153&itemId=20475511707&vendorItemId=3429190084) 👌 
@@ -114,7 +114,7 @@ pin: true
 
 ## 6. 태국유심 태국유심칩 무제한 10일 8일 7일 5일 True AIS 카카오톡 유튜브 네이버 사용 스카이패스로밍, 택배수령, 15GB 무제한 7일-True
 
-![방콕유심 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e017/f1744259a28b4887f107e0a3b9138a9dc985f476e4ce239ab5ce6823061c.jpg)
+[![방콕유심 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e017/f1744259a28b4887f107e0a3b9138a9dc985f476e4ce239ab5ce6823061c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4590321052&traceid=V0-153&itemId=5642806468&vendorItemId=72941820264)
 
 
 👍 [태국유심 태국유심칩 무제한 10일 8일 7일 5일 True AIS 카카오톡 유튜브 네이버 사용 스카이패스로밍, 택배수령, 15GB 무제한 7일-True <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4590321052&traceid=V0-153&itemId=5642806468&vendorItemId=72941820264) 👌 
@@ -132,7 +132,7 @@ pin: true
 
 ## 7. 심통 동남아 6개국 공용 유심칩, 5일, 매일 2GB 소진후 저속무제한
 
-![방콕유심 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/113543373898431-c452ea54-1d5e-414d-92b4-418559a9e9be.jpg)
+[![방콕유심 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/113543373898431-c452ea54-1d5e-414d-92b4-418559a9e9be.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7324744170&traceid=V0-153&itemId=18849999715&vendorItemId=85979346894)
 
 
 👍 [심통 동남아 6개국 공용 유심칩, 5일, 매일 2GB 소진후 저속무제한 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7324744170&traceid=V0-153&itemId=18849999715&vendorItemId=85979346894) 👌 
@@ -150,7 +150,7 @@ pin: true
 
 ## 8. 태국유심 AIS 트루 인천공항 데이터무제한 방콕 푸켓 여행 유심칩 5일 8일, AIS 7일 15GB+인천공항수령, 1개
 
-![방콕유심 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/017c/c79f6810a08e9d81e6eb2d331e9559f62dbf0660d182c82df9a29de66d91.png)
+[![방콕유심 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/017c/c79f6810a08e9d81e6eb2d331e9559f62dbf0660d182c82df9a29de66d91.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7673300218&traceid=V0-153&itemId=20475511707&vendorItemId=3429190084)
 
 
 👍 [태국유심 AIS 트루 인천공항 데이터무제한 방콕 푸켓 여행 유심칩 5일 8일, AIS 7일 15GB+인천공항수령, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7673300218&traceid=V0-153&itemId=20475511707&vendorItemId=3429190084) 👌 
@@ -168,7 +168,7 @@ pin: true
 
 ## 9. 태국유심 데이터 무제한 통화 인천공항 택배 AIS DTAC TRUE 핫스팟 여행 유심칩, 매일 500MB 후 저속무제한, 3일
 
-![방콕유심 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ee27/29487f817d22a7c63521e6d8ae7bb547b533b22287ee8b138e3c4d5a3d42.jpg)
+[![방콕유심 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ee27/29487f817d22a7c63521e6d8ae7bb547b533b22287ee8b138e3c4d5a3d42.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6612536542&traceid=V0-153&itemId=15000586917&vendorItemId=82223454934)
 
 
 👍 [태국유심 데이터 무제한 통화 인천공항 택배 AIS DTAC TRUE 핫스팟 여행 유심칩, 매일 500MB 후 저속무제한, 3일 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6612536542&traceid=V0-153&itemId=15000586917&vendorItemId=82223454934) 👌 
@@ -186,7 +186,7 @@ pin: true
 
 ## 10. 태국유심 AIS True Dtac 데이터 무제한, AIS 8일 5G속도 15GB이후 3G속도 무제한
 
-![방콕유심 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7ce2/eab3ee1c2bfbcc058490b1a274b736f1a2772c987f9220a987dca3623183.jpg)
+[![방콕유심 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7ce2/eab3ee1c2bfbcc058490b1a274b736f1a2772c987f9220a987dca3623183.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7635313931&traceid=V0-153&itemId=20273465323&vendorItemId=85740529023)
 
 
 👍 [태국유심 AIS True Dtac 데이터 무제한, AIS 8일 5G속도 15GB이후 3G속도 무제한 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7635313931&traceid=V0-153&itemId=20273465323&vendorItemId=85740529023) 👌 

@@ -29,7 +29,7 @@ pin: true
 
 ## 1. Shellarys 여성 오리털 프리미엄 경량패딩
 
-![여성구스다운 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7744/811bf4ac8a47ff71249a5c5e01cc00ccc00c9c21f9f749093c27f73577ec.png)
+[![여성구스다운 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7744/811bf4ac8a47ff71249a5c5e01cc00ccc00c9c21f9f749093c27f73577ec.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685347515&traceid=V0-153&itemId=20536838066&vendorItemId=87613538762)
 
 
 👍 [Shellarys 여성 오리털 프리미엄 경량패딩 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685347515&traceid=V0-153&itemId=20536838066&vendorItemId=87613538762) 👌 
@@ -47,7 +47,7 @@ pin: true
 
 ## 2. ANYOU 여성 숏 패딩 미니 디자인 경량 오리털 코트 구스다운패딩
 
-![여성구스다운 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f79d/833ab042bd24ae01d1cce1171088bad144eef301291e7d300505b8f606ba.jpg)
+[![여성구스다운 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f79d/833ab042bd24ae01d1cce1171088bad144eef301291e7d300505b8f606ba.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7687835653&traceid=V0-153&itemId=20550410380&vendorItemId=87803587447)
 
 
 👍 [ANYOU 여성 숏 패딩 미니 디자인 경량 오리털 코트 구스다운패딩 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7687835653&traceid=V0-153&itemId=20550410380&vendorItemId=87803587447) 👌 
@@ -65,7 +65,7 @@ pin: true
 
 ## 3. 크크섬 거위털 100% 구스다운 빅포켓 여성 롱패딩 후드 패딩 점퍼
 
-![여성구스다운 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2b71/960841846ddaead232a3478f153b4b5f68700b7ac35b6afc5c1e060a2e1b.jpg)
+[![여성구스다운 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2b71/960841846ddaead232a3478f153b4b5f68700b7ac35b6afc5c1e060a2e1b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7704194420&traceid=V0-153&itemId=20634922122&vendorItemId=87708835498)
 
 
 👍 [크크섬 거위털 100% 구스다운 빅포켓 여성 롱패딩 후드 패딩 점퍼 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7704194420&traceid=V0-153&itemId=20634922122&vendorItemId=87708835498) 👌 
@@ -83,7 +83,7 @@ pin: true
 
 ## 4. 겨울 다운 패딩 코트 중년 어머니 롱패딩 하늘비즈 C31 L870J169
 
-![여성구스다운 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/aad2/2c85842aeebbd0fb41148172d9d4672734970e638088e5f8e67e332618ad.jpg)
+[![여성구스다운 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/aad2/2c85842aeebbd0fb41148172d9d4672734970e638088e5f8e67e332618ad.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6835769688&traceid=V0-153&itemId=16240290420&vendorItemId=85447158445)
 
 
 👍 [겨울 다운 패딩 코트 중년 어머니 롱패딩 하늘비즈 C31 L870J169 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6835769688&traceid=V0-153&itemId=16240290420&vendorItemId=85447158445) 👌 
@@ -101,7 +101,7 @@ pin: true
 
 ## 5. 블랙야크 애슬레저 기모 맨투맨 남자 여자 커플티 BKJ-1012
 
-![여성구스다운 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9bfc/5dd5a68f9fabe3c4cef31ad57ba4d13231605deac88d7e0940ce0f264bd0.jpg)
+[![여성구스다운 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9bfc/5dd5a68f9fabe3c4cef31ad57ba4d13231605deac88d7e0940ce0f264bd0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6839802639&traceid=V0-153&itemId=16261320783&vendorItemId=87488697580)
 
 
 👍 [블랙야크 애슬레저 기모 맨투맨 남자 여자 커플티 BKJ-1012 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6839802639&traceid=V0-153&itemId=16261320783&vendorItemId=87488697580) 👌 
@@ -119,7 +119,7 @@ pin: true
 
 ## 6. 덤블 양털 숏점퍼 투웨이 누빔 패딩(3color)
 
-![여성구스다운 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1283/e0c82583e4c2726a61f8182bcfa633fdd0f5dd29381282d0123ad1324720.jpg)
+[![여성구스다운 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1283/e0c82583e4c2726a61f8182bcfa633fdd0f5dd29381282d0123ad1324720.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7637214482&traceid=V0-153&itemId=20282685638&vendorItemId=87490651580)
 
 
 👍 [덤블 양털 숏점퍼 투웨이 누빔 패딩(3color) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7637214482&traceid=V0-153&itemId=20282685638&vendorItemId=87490651580) 👌 
@@ -137,7 +137,7 @@ pin: true
 
 ## 7. 지컷 여성용 웨이스트 스트링 구스다운 후드 자켓 7253417108
 
-![여성구스다운 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/10/28/11/9/65551b0d-9c18-4d6e-a6f3-bd767b95e6ef.jpg)
+[![여성구스다운 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/10/28/11/9/65551b0d-9c18-4d6e-a6f3-bd767b95e6ef.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7605654582&traceid=V0-153&itemId=20130436367&vendorItemId=87597168458)
 
 
 👍 [지컷 여성용 웨이스트 스트링 구스다운 후드 자켓 7253417108 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7605654582&traceid=V0-153&itemId=20130436367&vendorItemId=87597168458) 👌 
@@ -155,7 +155,7 @@ pin: true
 
 ## 8. 지컷 여성용 와이드 하이넥 구스다운 패딩 자켓 7253417120
 
-![여성구스다운 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/10/28/10/5/cb052bfe-eae3-45dc-aaff-fb6de2597e8a.jpg)
+[![여성구스다운 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/10/28/10/5/cb052bfe-eae3-45dc-aaff-fb6de2597e8a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7626077215&traceid=V0-153&itemId=20229037697&vendorItemId=87596915169)
 
 
 👍 [지컷 여성용 와이드 하이넥 구스다운 패딩 자켓 7253417120 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7626077215&traceid=V0-153&itemId=20229037697&vendorItemId=87596915169) 👌 
@@ -173,7 +173,7 @@ pin: true
 
 ## 9. 여성 라운드 경량 패딩 조끼 J004 웰론 아웃도어 이너 아우터
 
-![여성구스다운 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/092f/950281356a512e71230a5baf23e6fbcb1f02256f168522089c0d675e2a9b.jpg)
+[![여성구스다운 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/092f/950281356a512e71230a5baf23e6fbcb1f02256f168522089c0d675e2a9b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6080650618&traceid=V0-153&itemId=11270250345&vendorItemId=71531860022)
 
 
 👍 [여성 라운드 경량 패딩 조끼 J004 웰론 아웃도어 이너 아우터 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6080650618&traceid=V0-153&itemId=11270250345&vendorItemId=71531860022) 👌 
@@ -191,7 +191,7 @@ pin: true
 
 ## 10. ANYOU 블랙 경량패딩 후드 패딩 남녀공용 패딩 커플 겨울 점퍼 롱패딩
 
-![여성구스다운 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4fa5/f96d9b1f21ba7147037b6f8a29ce347b950aa8eb28cdfe0745136dd33a68.jpeg)
+[![여성구스다운 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4fa5/f96d9b1f21ba7147037b6f8a29ce347b950aa8eb28cdfe0745136dd33a68.jpeg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7742576285&traceid=V0-153&itemId=20835023896&vendorItemId=87911482451)
 
 
 👍 [ANYOU 블랙 경량패딩 후드 패딩 남녀공용 패딩 커플 겨울 점퍼 롱패딩 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7742576285&traceid=V0-153&itemId=20835023896&vendorItemId=87911482451) 👌 

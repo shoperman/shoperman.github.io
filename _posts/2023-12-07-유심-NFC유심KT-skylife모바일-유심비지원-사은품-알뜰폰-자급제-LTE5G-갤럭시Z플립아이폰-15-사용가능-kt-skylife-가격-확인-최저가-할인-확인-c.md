@@ -31,7 +31,7 @@ pin: true
 
 ## 1. NFC유심-KT skylife모바일 유심비지원 사은품 알뜰폰 자급제 LTE/5G 갤럭시/Z플립/아이폰 15 사용가능 kt skylife
 
-![유심 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/6512328200982286-4c60008c-6a61-4633-ac0d-dc29f25d9366.jpg)
+[![유심 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/6512328200982286-4c60008c-6a61-4633-ac0d-dc29f25d9366.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6102057312&traceid=V0-153&itemId=11441349690&vendorItemId=78716829486)
 
 
 👍 [NFC유심-KT skylife모바일 유심비지원 사은품 알뜰폰 자급제 LTE/5G 갤럭시/Z플립/아이폰 15 사용가능 kt skylife <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6102057312&traceid=V0-153&itemId=11441349690&vendorItemId=78716829486) 👌 
@@ -49,7 +49,7 @@ pin: true
 
 ## 2. [유심] 일본유심 도쿄 오사카 도코모 소프트뱅크 유심칩 데이터 무제한 공항수령
 
-![유심 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00021417/30432cdf-a984-42eb-8ad2-27172660f0fc.jpg)
+[![유심 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00021417/30432cdf-a984-42eb-8ad2-27172660f0fc.jpg)](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000664655&traceid=V0-153&itemId=None&vendorItemId=None)
 
 
 👍 [[유심] 일본유심 도쿄 오사카 도코모 소프트뱅크 유심칩 데이터 무제한 공항수령 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000664655&traceid=V0-153&itemId=None&vendorItemId=None) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. [eSIM] 일본 eSIM 데이터 무제한 도쿄 오사카 유심 아이폰e심 도시락eSIM
 
-![유심 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00021417/653d548a-477c-493b-8d36-f222d0e81a25.jpg)
+[![유심 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00021417/653d548a-477c-493b-8d36-f222d0e81a25.jpg)](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000654009&traceid=V0-153&itemId=None&vendorItemId=None)
 
 
 👍 [[eSIM] 일본 eSIM 데이터 무제한 도쿄 오사카 유심 아이폰e심 도시락eSIM <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000654009&traceid=V0-153&itemId=None&vendorItemId=None) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. [유심] 대만유심 타이베이 가오슝 타이루거 데이터 무제한 유심칩 공항수령
 
-![유심 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00021417/69362de6-9bd6-47cf-a422-187b9a025d21.jpg)
+[![유심 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00021417/69362de6-9bd6-47cf-a422-187b9a025d21.jpg)](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000664662&traceid=V0-153&itemId=None&vendorItemId=None)
 
 
 👍 [[유심] 대만유심 타이베이 가오슝 타이루거 데이터 무제한 유심칩 공항수령 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000664662&traceid=V0-153&itemId=None&vendorItemId=None) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. 일반유심-KT skylife모바일 유심비지원 사은품 알뜰폰 자급제 LTE/5G 갤럭시/Z플립/아이폰 15 사용가능 kt skylife
 
-![유심 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/426663614727954-9e7bae32-083a-4c71-b229-4f8ddb0c20c5.jpg)
+[![유심 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/426663614727954-9e7bae32-083a-4c71-b229-4f8ddb0c20c5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7612664086&traceid=V0-153&itemId=20165417185&vendorItemId=87257762310)
 
 
 👍 [일반유심-KT skylife모바일 유심비지원 사은품 알뜰폰 자급제 LTE/5G 갤럭시/Z플립/아이폰 15 사용가능 kt skylife <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7612664086&traceid=V0-153&itemId=20165417185&vendorItemId=87257762310) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. 유심-KT M모바일 LTE/5G 요금제 갤럭시/Z플립5/아이폰15 자급제 사용가능
 
-![유심 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8841884629224579-58fc76ab-993d-472a-a332-49a202bb0f5f.png)
+[![유심 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8841884629224579-58fc76ab-993d-472a-a332-49a202bb0f5f.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4751115993&traceid=V0-153&itemId=6046004633&vendorItemId=73343366752)
 
 
 👍 [유심-KT M모바일 LTE/5G 요금제 갤럭시/Z플립5/아이폰15 자급제 사용가능 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4751115993&traceid=V0-153&itemId=6046004633&vendorItemId=73343366752) 👌 
@@ -139,7 +139,7 @@ pin: true
 
 ## 7. [베트남] 베트남 무제한 데이터 포켓와이파이 와이파이도시락 4GLTE 해외로밍전화 무료
 
-![유심 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00021417/fa14ea25-fd2c-46d8-bede-f15fbcc8ff4a.jpg)
+[![유심 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00021417/fa14ea25-fd2c-46d8-bede-f15fbcc8ff4a.jpg)](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=194959199&traceid=V0-153&itemId=None&vendorItemId=None)
 
 
 👍 [[베트남] 베트남 무제한 데이터 포켓와이파이 와이파이도시락 4GLTE 해외로밍전화 무료 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=194959199&traceid=V0-153&itemId=None&vendorItemId=None) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. [포켓와이파이] 일본 무제한 데이터 포켓와이파이 와이파이도시락 4GLTE 해외로밍전화 무료
 
-![유심 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00021417/53331599-b691-4ea4-b9da-40df71eef211.jpg)
+[![유심 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00021417/53331599-b691-4ea4-b9da-40df71eef211.jpg)](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=195054229&traceid=V0-153&itemId=None&vendorItemId=None)
 
 
 👍 [[포켓와이파이] 일본 무제한 데이터 포켓와이파이 와이파이도시락 4GLTE 해외로밍전화 무료 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=195054229&traceid=V0-153&itemId=None&vendorItemId=None) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. 유심-U+ 유모바일 알뜰폰 유심 사은품 증정 4G/5G요금제 갤럭시S/아이폰15 사용가능
 
-![유심 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1173486187595276-678f604d-b7b6-4145-962f-80a9bf302f24.png)
+[![유심 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1173486187595276-678f604d-b7b6-4145-962f-80a9bf302f24.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4353567748&traceid=V0-153&itemId=5110839155&vendorItemId=72420368481)
 
 
 👍 [유심-U+ 유모바일 알뜰폰 유심 사은품 증정 4G/5G요금제 갤럭시S/아이폰15 사용가능 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4353567748&traceid=V0-153&itemId=5110839155&vendorItemId=72420368481) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 10. [eSIM] 베트남 eSIM 데이터 다낭 하노이 무제한 유심 아이폰e심 도시락eSIM
 
-![유심 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00021417/927790e2-1947-472d-a243-4f076b5cb1d0.jpg)
+[![유심 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00021417/927790e2-1947-472d-a243-4f076b5cb1d0.jpg)](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000739901&traceid=V0-153&itemId=None&vendorItemId=None)
 
 
 👍 [[eSIM] 베트남 eSIM 데이터 다낭 하노이 무제한 유심 아이폰e심 도시락eSIM <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000739901&traceid=V0-153&itemId=None&vendorItemId=None) 👌 

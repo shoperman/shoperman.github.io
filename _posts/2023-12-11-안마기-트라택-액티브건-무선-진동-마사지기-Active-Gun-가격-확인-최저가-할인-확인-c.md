@@ -31,7 +31,7 @@ pin: true
 
 ## 1. 트라택 액티브건 무선 진동 마사지기 Active Gun
 
-![안마기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/64029504498035-53efc91a-2259-4d5a-bf2a-2c6ec2b95a0a.jpg)
+[![안마기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/64029504498035-53efc91a-2259-4d5a-bf2a-2c6ec2b95a0a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1281010170&traceid=V0-153&itemId=2289119098&vendorItemId=70286156550)
 
 
 👍 [트라택 액티브건 무선 진동 마사지기 Active Gun <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1281010170&traceid=V0-153&itemId=2289119098&vendorItemId=70286156550) 👌 
@@ -50,7 +50,7 @@ pin: true
 
 ## 2. Smabat 무선 목어깨 안마기 어깨마사지기 넥엔숄더 안마기 온열 화이트 그레이
 
-![안마기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c860/589d490036f0cf30946b2d36e4548e56129e85c403c0541b0cf5d238506b.jpg)
+[![안마기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c860/589d490036f0cf30946b2d36e4548e56129e85c403c0541b0cf5d238506b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7549329598&traceid=V0-153&itemId=19863588442&vendorItemId=86971688400)
 
 
 👍 [Smabat 무선 목어깨 안마기 어깨마사지기 넥엔숄더 안마기 온열 화이트 그레이 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7549329598&traceid=V0-153&itemId=19863588442&vendorItemId=86971688400) 👌 
@@ -69,7 +69,7 @@ pin: true
 
 ## 3. 홈플래닛 무선 전동 마사지건, LC-001 (블랙)
 
-![안마기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/6848465164324956-c3959bb6-0f40-4fc9-a1ef-f922f52fc703.jpg)
+[![안마기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/6848465164324956-c3959bb6-0f40-4fc9-a1ef-f922f52fc703.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1831898177&traceid=V0-153&itemId=3115822229&vendorItemId=71103549420)
 
 
 👍 [홈플래닛 무선 전동 마사지건, LC-001 (블랙) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1831898177&traceid=V0-153&itemId=3115822229&vendorItemId=71103549420) 👌 
@@ -88,7 +88,7 @@ pin: true
 
 ## 4. 홈플래닛 고성능 미니 마사지건 (전용가방 + 헤드4종 + C타입 충전기), RC-MG-202
 
-![안마기 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/97468356623095-d5c5d210-4659-450c-8295-a3f204ed18c0.jpg)
+[![안마기 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/97468356623095-d5c5d210-4659-450c-8295-a3f204ed18c0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2251441685&traceid=V0-153&itemId=3849061312&vendorItemId=71833858059)
 
 
 👍 [홈플래닛 고성능 미니 마사지건 (전용가방 + 헤드4종 + C타입 충전기), RC-MG-202 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2251441685&traceid=V0-153&itemId=3849061312&vendorItemId=71833858059) 👌 
@@ -107,7 +107,7 @@ pin: true
 
 ## 5. 챔피온 네오 안마기 CE-6001N
 
-![안마기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0bc2/c6c49fc7fa0a357f7dc657512b569681362dfef39de04a25ae9b571839dc.png)
+[![안마기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0bc2/c6c49fc7fa0a357f7dc657512b569681362dfef39de04a25ae9b571839dc.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2092625308&traceid=V0-153&itemId=3554721791&vendorItemId=82879661769)
 
 
 👍 [챔피온 네오 안마기 CE-6001N <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2092625308&traceid=V0-153&itemId=3554721791&vendorItemId=82879661769) 👌 
@@ -126,7 +126,7 @@ pin: true
 
 ## 6. 아이오랩 골드라이너 무선 핸디마사지기 MT-66SA
 
-![안마기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1219397475685061-f306f072-f04c-42c7-b6fc-020d784e14b8.jpg)
+[![안마기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1219397475685061-f306f072-f04c-42c7-b6fc-020d784e14b8.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=123460556&traceid=V0-153&itemId=365857902&vendorItemId=4336909950)
 
 
 👍 [아이오랩 골드라이너 무선 핸디마사지기 MT-66SA <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=123460556&traceid=V0-153&itemId=365857902&vendorItemId=4336909950) 👌 
@@ -145,7 +145,7 @@ pin: true
 
 ## 7. 휴플러스 3D텐션 목 어깨 안마기 HPM-200
 
-![안마기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4340730149450124-acd30eef-de23-41d9-9c12-2e2f54f4a324.jpg)
+[![안마기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4340730149450124-acd30eef-de23-41d9-9c12-2e2f54f4a324.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=19044234&traceid=V0-153&itemId=76483541&vendorItemId=3128383146)
 
 
 👍 [휴플러스 3D텐션 목 어깨 안마기 HPM-200 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=19044234&traceid=V0-153&itemId=76483541&vendorItemId=3128383146) 👌 
@@ -164,7 +164,7 @@ pin: true
 
 ## 8. 제스파 플러스 목어깨 안마기 등 허리 마사지기 베베핑크 ZP187PK
 
-![안마기 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/629846749180109-68f375bb-24dd-4376-8f20-5da7d6956894.jpg)
+[![안마기 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/629846749180109-68f375bb-24dd-4376-8f20-5da7d6956894.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1630536&traceid=V0-153&itemId=11503758333&vendorItemId=78918591046)
 
 
 👍 [제스파 플러스 목어깨 안마기 등 허리 마사지기 베베핑크 ZP187PK <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1630536&traceid=V0-153&itemId=11503758333&vendorItemId=78918591046) 👌 
@@ -183,7 +183,7 @@ pin: true
 
 ## 9. 오아 무선 쿠션형 목 어깨 등 허리 다리 종아리 발 전신 안마기 OA-MA036 L
 
-![안마기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/12119451104074-82b37901-512e-4084-842f-e3ae14c02e58.jpg)
+[![안마기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/12119451104074-82b37901-512e-4084-842f-e3ae14c02e58.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1557579138&traceid=V0-153&itemId=2663484568&vendorItemId=70654070821)
 
 
 👍 [오아 무선 쿠션형 목 어깨 등 허리 다리 종아리 발 전신 안마기 OA-MA036 L <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1557579138&traceid=V0-153&itemId=2663484568&vendorItemId=70654070821) 👌 
@@ -202,7 +202,7 @@ pin: true
 
 ## 10. 비타그램 온열 스트레칭 안마매트 VGC-WAM5000
 
-![안마기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/02/28/18/8/8f45010f-a715-4259-8592-c011aaa35c38.jpg)
+[![안마기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/02/28/18/8/8f45010f-a715-4259-8592-c011aaa35c38.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7169991456&traceid=V0-153&itemId=18061398437&vendorItemId=85215170240)
 
 
 👍 [비타그램 온열 스트레칭 안마매트 VGC-WAM5000 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7169991456&traceid=V0-153&itemId=18061398437&vendorItemId=85215170240) 👌 

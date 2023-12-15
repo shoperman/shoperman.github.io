@@ -21,7 +21,7 @@ pin: true
 
 ## 1. OBge 내추럴 커버 파운데이션 SPF50+ PA++++ 13g, 2호 베이지, 1개
 
-![파운데이션 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/621605941318924-ddfa1f84-1b69-4c28-b458-37fbb87bad65.jpg)
+[![파운데이션 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/621605941318924-ddfa1f84-1b69-4c28-b458-37fbb87bad65.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7701372152&traceid=V0-153&itemId=20620704329&vendorItemId=80850295223)
 
 
 👍 [OBge 내추럴 커버 파운데이션 SPF50+ PA++++ 13g, 2호 베이지, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7701372152&traceid=V0-153&itemId=20620704329&vendorItemId=80850295223) 👌 
@@ -39,7 +39,7 @@ pin: true
 
 ## 2. 에이지투웨니스 시그니처 에센스 커버 팩트 인텐스 케이스 1개 + 리필 2개, 1세트, 21호
 
-![파운데이션 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3018311527379392-18c358cf-8b15-4abe-90fb-9b6b1619fdd7.jpg)
+[![파운데이션 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3018311527379392-18c358cf-8b15-4abe-90fb-9b6b1619fdd7.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6867793520&traceid=V0-153&itemId=18321108664&vendorItemId=5150392697)
 
 
 👍 [에이지투웨니스 시그니처 에센스 커버 팩트 인텐스 케이스 1개 + 리필 2개, 1세트, 21호 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6867793520&traceid=V0-153&itemId=18321108664&vendorItemId=5150392697) 👌 
@@ -57,7 +57,7 @@ pin: true
 
 ## 3. 에스쁘아 프로 테일러 비 글로우 파운데이션 뉴클래스 SPF27 PA++ 30g, 1개, 아이보리
 
-![파운데이션 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2022/11/17/18/0/368302a3-3711-4423-9c36-48fcbd124aff.jpg)
+[![파운데이션 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2022/11/17/18/0/368302a3-3711-4423-9c36-48fcbd124aff.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6928465400&traceid=V0-153&itemId=16756932675&vendorItemId=83938431743)
 
 
 👍 [에스쁘아 프로 테일러 비 글로우 파운데이션 뉴클래스 SPF27 PA++ 30g, 1개, 아이보리 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6928465400&traceid=V0-153&itemId=16756932675&vendorItemId=83938431743) 👌 
@@ -75,7 +75,7 @@ pin: true
 
 ## 4. 에뛰드하우스 더블래스팅 리퀴드 파운데이션 30g, 뉴트럴베이지, 1개
 
-![파운데이션 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3230635007390056-5ecbda6b-1fa3-4863-99a4-70b0397fb385.jpg)
+[![파운데이션 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3230635007390056-5ecbda6b-1fa3-4863-99a4-70b0397fb385.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1633597923&traceid=V0-153&itemId=2786386922&vendorItemId=70776116782)
 
 
 👍 [에뛰드하우스 더블래스팅 리퀴드 파운데이션 30g, 뉴트럴베이지, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1633597923&traceid=V0-153&itemId=2786386922&vendorItemId=70776116782) 👌 
@@ -93,7 +93,7 @@ pin: true
 
 ## 5. 블랑카우 엘더 스킨핏 파운데이션 30ml SPF50+ PA++++, 옐로우베이지(23호), 2개
 
-![파운데이션 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/23ef/143972dcdf67c7f5d9def3f624d7b6112ee22642df117f7e9bbc29dd4209.jpg)
+[![파운데이션 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/23ef/143972dcdf67c7f5d9def3f624d7b6112ee22642df117f7e9bbc29dd4209.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7553246324&traceid=V0-153&itemId=19883033432&vendorItemId=77462341125)
 
 
 👍 [블랑카우 엘더 스킨핏 파운데이션 30ml SPF50+ PA++++, 옐로우베이지(23호), 2개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7553246324&traceid=V0-153&itemId=19883033432&vendorItemId=77462341125) 👌 
@@ -111,7 +111,7 @@ pin: true
 
 ## 6. 메이블린 핏미 파운데이션 레노 30ml + 미니파운데이션 5ml 세트, 112 내추럴 아이보리(파운데이션), 112 내추럴 아이보리(미니파운데이션), 1세트
 
-![파운데이션 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3224763012092868-de9d35f8-0395-40bc-8996-8186d5df07da.jpg)
+[![파운데이션 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3224763012092868-de9d35f8-0395-40bc-8996-8186d5df07da.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6487179063&traceid=V0-153&itemId=14225869138&vendorItemId=81471184545)
 
 
 👍 [메이블린 핏미 파운데이션 레노 30ml + 미니파운데이션 5ml 세트, 112 내추럴 아이보리(파운데이션), 112 내추럴 아이보리(미니파운데이션), 1세트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6487179063&traceid=V0-153&itemId=14225869138&vendorItemId=81471184545) 👌 
@@ -129,7 +129,7 @@ pin: true
 
 ## 7. 루나 롱래스팅 파운데이션 30ml, 21호 바닐라, 1개
 
-![파운데이션 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2022/10/14/15/1/47f53d1f-4407-4968-916b-63dca31949ea.jpg)
+[![파운데이션 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2022/10/14/15/1/47f53d1f-4407-4968-916b-63dca31949ea.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6842824524&traceid=V0-153&itemId=16276758351&vendorItemId=83469429361)
 
 
 👍 [루나 롱래스팅 파운데이션 30ml, 21호 바닐라, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6842824524&traceid=V0-153&itemId=16276758351&vendorItemId=83469429361) 👌 
@@ -147,7 +147,7 @@ pin: true
 
 ## 8. 에스티로더 더블 웨어 스테이 인 플레이스 메이크업 SPF10 PA++ 30ml, 본 1W1, 1개
 
-![파운데이션 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2637422794268469-48dea743-c1cc-4b3b-84dc-40cca883bc7a.jpg)
+[![파운데이션 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2637422794268469-48dea743-c1cc-4b3b-84dc-40cca883bc7a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6415211716&traceid=V0-153&itemId=13775779616&vendorItemId=78015500337)
 
 
 👍 [에스티로더 더블 웨어 스테이 인 플레이스 메이크업 SPF10 PA++ 30ml, 본 1W1, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6415211716&traceid=V0-153&itemId=13775779616&vendorItemId=78015500337) 👌 
@@ -165,7 +165,7 @@ pin: true
 
 ## 9. 3W클리닉 콜라겐 파운데이션 50ml, 1개, 21호
 
-![파운데이션 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/images/2017/11/09/10/7/d2f2e56d-7afe-4e01-a7fa-efc79b66b7a4.jpg)
+[![파운데이션 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/images/2017/11/09/10/7/d2f2e56d-7afe-4e01-a7fa-efc79b66b7a4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2055615820&traceid=V0-153&itemId=3494540844&vendorItemId=71480778365)
 
 
 👍 [3W클리닉 콜라겐 파운데이션 50ml, 1개, 21호 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2055615820&traceid=V0-153&itemId=3494540844&vendorItemId=71480778365) 👌 
@@ -183,7 +183,7 @@ pin: true
 
 ## 10. 바닐라코 커버리셔스 파워 핏 파운데이션 30ml, 21 아이보리, 1개
 
-![파운데이션 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/03/21/14/2/5820fa40-c639-45b6-928a-ebc6993688b2.jpg)
+[![파운데이션 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/03/21/14/2/5820fa40-c639-45b6-928a-ebc6993688b2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7212295836&traceid=V0-153&itemId=18255311957&vendorItemId=85401943987)
 
 
 👍 [바닐라코 커버리셔스 파워 핏 파운데이션 30ml, 21 아이보리, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7212295836&traceid=V0-153&itemId=18255311957&vendorItemId=85401943987) 👌 

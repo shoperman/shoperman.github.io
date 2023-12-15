@@ -31,7 +31,7 @@ pin: true
 
 ## 1. [제이에스티나 백] MANO EW 롱숄더 BK (JHNCHA2BS326BK980)
 
-![쿠론가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c723/c685777a578dcc3f94a5034ef3931690a1a3f17e48febb0dbefa4236a5da.jpg)
+[![쿠론가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c723/c685777a578dcc3f94a5034ef3931690a1a3f17e48febb0dbefa4236a5da.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6319886624&traceid=V0-153&itemId=13165985404&vendorItemId=80424685664)
 
 
 👍 [[제이에스티나 백] MANO EW 롱숄더 BK (JHNCHA2BS326BK980) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6319886624&traceid=V0-153&itemId=13165985404&vendorItemId=80424685664) 👌 
@@ -49,7 +49,7 @@ pin: true
 
 ## 2. 쿠론 론드 벨담 토트백 22 RCBTX22623BRX
 
-![쿠론가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ee1f/8c036fbf51ba7d4dfa363d2030bfbeef93524f2a9bf031b427f89db5bda2.jpg)
+[![쿠론가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ee1f/8c036fbf51ba7d4dfa363d2030bfbeef93524f2a9bf031b427f89db5bda2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7511616799&traceid=V0-153&itemId=19682927705&vendorItemId=87145447737)
 
 
 👍 [쿠론 론드 벨담 토트백 22 RCBTX22623BRX <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7511616799&traceid=V0-153&itemId=19682927705&vendorItemId=87145447737) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. 쿠론 가방 플러피 팝 숄더 34 RCBSX23512BKX
 
-![쿠론가방 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9d4d/6aeb10da37a77a58cdcf6941d14517e30c494f21c579c160712cafa4a41a.png)
+[![쿠론가방 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9d4d/6aeb10da37a77a58cdcf6941d14517e30c494f21c579c160712cafa4a41a.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7467618333&traceid=V0-153&itemId=19478715540&vendorItemId=86588825604)
 
 
 👍 [쿠론 가방 플러피 팝 숄더 34 RCBSX23512BKX <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7467618333&traceid=V0-153&itemId=19478715540&vendorItemId=86588825604) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. 로로프렌즈 퀄리티 비건 레더 체인 숄더백
 
-![쿠론가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4d64/d3c2560dbbf1549cdba9932bd362bc7b53e14a8744ed0b3ed44cbbb89b45.jpg)
+[![쿠론가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4d64/d3c2560dbbf1549cdba9932bd362bc7b53e14a8744ed0b3ed44cbbb89b45.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6842428525&traceid=V0-153&itemId=16274810116&vendorItemId=83467490904)
 
 
 👍 [로로프렌즈 퀄리티 비건 레더 체인 숄더백 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6842428525&traceid=V0-153&itemId=16274810116&vendorItemId=83467490904) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. 한투스 여성 숄더백 크로스백 데일리 패딩 가방
 
-![쿠론가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/15b8/ad70ed7bbc3f45d4f3a3b1ea06a060d9e8398f9649ccd361466605a0e192.jpg)
+[![쿠론가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/15b8/ad70ed7bbc3f45d4f3a3b1ea06a060d9e8398f9649ccd361466605a0e192.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7633129003&traceid=V0-153&itemId=20263468812&vendorItemId=87350869145)
 
 
 👍 [한투스 여성 숄더백 크로스백 데일리 패딩 가방 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7633129003&traceid=V0-153&itemId=20263468812&vendorItemId=87350869145) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. 론네바이론 제크 크로스 숄더백
 
-![쿠론가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/yq8tsuqw/963f6abd03aa437c8d5c82f23204d77e.jpg)
+[![쿠론가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/yq8tsuqw/963f6abd03aa437c8d5c82f23204d77e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6514466446&traceid=V0-153&itemId=14403774558&vendorItemId=81647834847)
 
 
 👍 [론네바이론 제크 크로스 숄더백 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6514466446&traceid=V0-153&itemId=14403774558&vendorItemId=81647834847) 👌 
@@ -139,7 +139,7 @@ pin: true
 
 ## 7. 쿠론 로리나(Lorina) 숄더 27 RCBSX22633BKX
 
-![쿠론가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2c86/860afa4aad434a2ed58dfb30e550e6d916d48175cd0615b60db444bc04cb.jpg)
+[![쿠론가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2c86/860afa4aad434a2ed58dfb30e550e6d916d48175cd0615b60db444bc04cb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7482364938&traceid=V0-153&itemId=19547876920&vendorItemId=87145223002)
 
 
 👍 [쿠론 로리나(Lorina) 숄더 27 RCBSX22633BKX <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7482364938&traceid=V0-153&itemId=19547876920&vendorItemId=87145223002) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. 프롬헤븐 루샌 퀼팅 여성 미니 크로스백
 
-![쿠론가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/84932158798612-c2dce5cb-baa7-4fee-9751-cd4e3146425c.jpg)
+[![쿠론가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/84932158798612-c2dce5cb-baa7-4fee-9751-cd4e3146425c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=175069723&traceid=V0-153&itemId=500324049&vendorItemId=4275468361)
 
 
 👍 [프롬헤븐 루샌 퀼팅 여성 미니 크로스백 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=175069723&traceid=V0-153&itemId=500324049&vendorItemId=4275468361) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. 니드마켓 스웨이드 무지 데일리 숄더백
 
-![쿠론가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1696/477df2140cb8c01818c8235a10c144f8ee2c15242120d931540d4c110332.jpg)
+[![쿠론가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1696/477df2140cb8c01818c8235a10c144f8ee2c15242120d931540d4c110332.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7694909428&traceid=V0-153&itemId=20586708942&vendorItemId=87661640301)
 
 
 👍 [니드마켓 스웨이드 무지 데일리 숄더백 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7694909428&traceid=V0-153&itemId=20586708942&vendorItemId=87661640301) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 10. 쿠론 티베리(Teaberry) 숄더 20_ROBSX23213BKX
 
-![쿠론가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/541c/f7bb6337c6b455285d96632b08efa14fe6409b92bb4edb31ab8c8849eaea.jpg)
+[![쿠론가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/541c/f7bb6337c6b455285d96632b08efa14fe6409b92bb4edb31ab8c8849eaea.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7707337582&traceid=V0-153&itemId=20651149798&vendorItemId=87724189815)
 
 
 👍 [쿠론 티베리(Teaberry) 숄더 20_ROBSX23213BKX <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7707337582&traceid=V0-153&itemId=20651149798&vendorItemId=87724189815) 👌 

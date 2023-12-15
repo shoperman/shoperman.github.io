@@ -21,7 +21,7 @@ pin: true
 
 ## 1. 힐맨 클라우드 UP SMART 텐트, 옐로우, 2인용
 
-![백패킹텐트 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2878237070484170-6b81db77-43f9-4927-a03b-8e7b4e35e405.jpg)
+[![백패킹텐트 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2878237070484170-6b81db77-43f9-4927-a03b-8e7b4e35e405.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5393646362&traceid=V0-153&itemId=8050306495&vendorItemId=75338842690)
 
 
 👍 [힐맨 클라우드 UP SMART 텐트, 옐로우, 2인용 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5393646362&traceid=V0-153&itemId=8050306495&vendorItemId=75338842690) 👌 
@@ -39,7 +39,7 @@ pin: true
 
 ## 2. 조아캠프 돔형 텐트, 블랙, 1-2인용
 
-![백패킹텐트 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/31cc/aeda4ca694c207bfb8cf636407f0d459dfe88e5bed95a6d75e4335e00441.png)
+[![백패킹텐트 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/31cc/aeda4ca694c207bfb8cf636407f0d459dfe88e5bed95a6d75e4335e00441.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=70423987&traceid=V0-153&itemId=384083651&vendorItemId=87775790861)
 
 
 👍 [조아캠프 돔형 텐트, 블랙, 1-2인용 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=70423987&traceid=V0-153&itemId=384083651&vendorItemId=87775790861) 👌 
@@ -57,7 +57,7 @@ pin: true
 
 ## 3. 로티캠프 라브 백패킹 텐트 1-2인용 경량텐트 백팩킹텐트 초경량텐트 트래킹 터널형텐트 1인용텐트 2인용텐트, 탄
 
-![백패킹텐트 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2277/146be73dd05089093a8cc036c0b80d67f12a866906b34c7f8dfea8652adb.jpg)
+[![백패킹텐트 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2277/146be73dd05089093a8cc036c0b80d67f12a866906b34c7f8dfea8652adb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7505441327&traceid=V0-153&itemId=19655231712&vendorItemId=85860854990)
 
 
 👍 [로티캠프 라브 백패킹 텐트 1-2인용 경량텐트 백팩킹텐트 초경량텐트 트래킹 터널형텐트 1인용텐트 2인용텐트, 탄 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7505441327&traceid=V0-153&itemId=19655231712&vendorItemId=85860854990) 👌 
@@ -75,7 +75,7 @@ pin: true
 
 ## 4. 힐맨 얼리버드 업 스마트 텐트, 레드, 2인용
 
-![백패킹텐트 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1574599660920479-cd41198a-fcb7-42a8-91f1-c925c13b682c.jpg)
+[![백패킹텐트 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1574599660920479-cd41198a-fcb7-42a8-91f1-c925c13b682c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1956849661&traceid=V0-153&itemId=3325144474&vendorItemId=71311997773)
 
 
 👍 [힐맨 얼리버드 업 스마트 텐트, 레드, 2인용 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1956849661&traceid=V0-153&itemId=3325144474&vendorItemId=71311997773) 👌 
@@ -93,7 +93,7 @@ pin: true
 
 ## 5. 힐맨 클라우드 UP SMART 텐트, 레드, 2인용
 
-![백패킹텐트 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2020/02/26/17/2/fff55c76-35af-46cf-9a74-4454624714d9.jpg)
+[![백패킹텐트 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2020/02/26/17/2/fff55c76-35af-46cf-9a74-4454624714d9.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5393646362&traceid=V0-153&itemId=8050306491&vendorItemId=75338842686)
 
 
 👍 [힐맨 클라우드 UP SMART 텐트, 레드, 2인용 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5393646362&traceid=V0-153&itemId=8050306491&vendorItemId=75338842686) 👌 
@@ -111,7 +111,7 @@ pin: true
 
 ## 6. 플라이탑 백패킹 텐트, 오렌지, 1.5인용
 
-![백패킹텐트 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/g70ohbik/9d02568bba6f4665b29f2d72c6188c69.jpg)
+[![백패킹텐트 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/g70ohbik/9d02568bba6f4665b29f2d72c6188c69.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5380950065&traceid=V0-153&itemId=7991879516&vendorItemId=75280734055)
 
 
 👍 [플라이탑 백패킹 텐트, 오렌지, 1.5인용 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5380950065&traceid=V0-153&itemId=7991879516&vendorItemId=75280734055) 👌 
@@ -129,7 +129,7 @@ pin: true
 
 ## 7. FLYTOP 알파인 백패킹텐트 5종모음전 등산비박 캠핑용품, WIND1.5, 1개
 
-![백패킹텐트 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/images/2016/12/02/18/8/2310a017-e6c1-4987-9b50-915a0c98e4ae.jpg)
+[![백패킹텐트 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/images/2016/12/02/18/8/2310a017-e6c1-4987-9b50-915a0c98e4ae.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6714060931&traceid=V0-153&itemId=15596648287&vendorItemId=3071156789)
 
 
 👍 [FLYTOP 알파인 백패킹텐트 5종모음전 등산비박 캠핑용품, WIND1.5, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6714060931&traceid=V0-153&itemId=15596648287&vendorItemId=3071156789) 👌 
@@ -147,7 +147,7 @@ pin: true
 
 ## 8. 프리툴바 FLYTOP 플라이탑텐트 비박 백패킹 당일발송, 03. 윈드2 PLUS -오렌지
 
-![백패킹텐트 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d872/f730f8b7c2b590b8f3f1abc0dbd318c5ea9776d51a280235452c09ae4ac8.jpg)
+[![백패킹텐트 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d872/f730f8b7c2b590b8f3f1abc0dbd318c5ea9776d51a280235452c09ae4ac8.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6097670926&traceid=V0-153&itemId=11405842457&vendorItemId=3565477382)
 
 
 👍 [프리툴바 FLYTOP 플라이탑텐트 비박 백패킹 당일발송, 03. 윈드2 PLUS -오렌지 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6097670926&traceid=V0-153&itemId=11405842457&vendorItemId=3565477382) 👌 
@@ -165,7 +165,7 @@ pin: true
 
 ## 9. 버팔로 아크 돔 텐트 4-5인 / 백패킹 낚시 돔텐트, 제품선택:버팔로 아크 돔 텐트(베이지), 선택완료
 
-![백패킹텐트 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0558/c68444f5d7315b8025dc394c95d447bfa7aa4b2c1e436dc8cad053a5401c.jpg)
+[![백패킹텐트 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0558/c68444f5d7315b8025dc394c95d447bfa7aa4b2c1e436dc8cad053a5401c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6623677796&traceid=V0-153&itemId=15070412709&vendorItemId=86985653825)
 
 
 👍 [버팔로 아크 돔 텐트 4-5인 / 백패킹 낚시 돔텐트, 제품선택:버팔로 아크 돔 텐트(베이지), 선택완료 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6623677796&traceid=V0-153&itemId=15070412709&vendorItemId=86985653825) 👌 
@@ -183,7 +183,7 @@ pin: true
 
 ## 10. Naturehike Cloud Up 시리즈 캠핑 여행 야외 텐트 20D 나일론 실리콘 초경량 방수 텐트 대형 생활 공간 텐트, 스페인, 잔디 녹색
 
-![백패킹텐트 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0930/ce18a0616c472f89e5a6af113e95f2576cc3a3965bb1be3b1217639fb94b.jpg)
+[![백패킹텐트 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0930/ce18a0616c472f89e5a6af113e95f2576cc3a3965bb1be3b1217639fb94b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6723833213&traceid=V0-153&itemId=15644725832&vendorItemId=87167161302)
 
 
 👍 [Naturehike Cloud Up 시리즈 캠핑 여행 야외 텐트 20D 나일론 실리콘 초경량 방수 텐트 대형 생활 공간 텐트, 스페인, 잔디 녹색 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6723833213&traceid=V0-153&itemId=15644725832&vendorItemId=87167161302) 👌 

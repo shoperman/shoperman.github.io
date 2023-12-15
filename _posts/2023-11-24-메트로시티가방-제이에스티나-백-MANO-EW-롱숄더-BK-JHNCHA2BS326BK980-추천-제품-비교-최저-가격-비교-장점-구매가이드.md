@@ -41,7 +41,7 @@ pin: true
 
 ## 1. [제이에스티나 백] MANO EW 롱숄더 BK (JHNCHA2BS326BK980)
 
-![메트로시티가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c723/c685777a578dcc3f94a5034ef3931690a1a3f17e48febb0dbefa4236a5da.jpg)
+[![메트로시티가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c723/c685777a578dcc3f94a5034ef3931690a1a3f17e48febb0dbefa4236a5da.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6319886624&traceid=V0-153&itemId=13165985404&vendorItemId=80424685664)
 
 
 👍 [[제이에스티나 백] MANO EW 롱숄더 BK (JHNCHA2BS326BK980) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6319886624&traceid=V0-153&itemId=13165985404&vendorItemId=80424685664) 👌 
@@ -59,7 +59,7 @@ pin: true
 
 ## 2. 메트로시티 여성 블랙 천연 소가죽 크로스백 겸 숄더백 ME203MF0057B
 
-![메트로시티가방 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ecfb/a6157cb144b2c3ff235ac21c0b6b81bb94aa14403260913bb1c1a5742145.jpg)
+[![메트로시티가방 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ecfb/a6157cb144b2c3ff235ac21c0b6b81bb94aa14403260913bb1c1a5742145.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7546417679&traceid=V0-153&itemId=19849807930&vendorItemId=86951028708)
 
 
 👍 [메트로시티 여성 블랙 천연 소가죽 크로스백 겸 숄더백 ME203MF0057B <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7546417679&traceid=V0-153&itemId=19849807930&vendorItemId=86951028708) 👌 
@@ -77,7 +77,7 @@ pin: true
 
 ## 3. 메트로시티 [메트로시티] 숄더 겸 크로스백 J231MQ0055Z
 
-![메트로시티가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0c9a/c816d7b392b7c1b82e49d41c312d409a4fc0d64fcd76517d52796018de79.jpg)
+[![메트로시티가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0c9a/c816d7b392b7c1b82e49d41c312d409a4fc0d64fcd76517d52796018de79.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7471345414&traceid=V0-153&itemId=19496030484&vendorItemId=86605597376)
 
 
 👍 [메트로시티 [메트로시티] 숄더 겸 크로스백 J231MQ0055Z <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7471345414&traceid=V0-153&itemId=19496030484&vendorItemId=86605597376) 👌 
@@ -95,7 +95,7 @@ pin: true
 
 ## 4. 메트로시티 여성 블랙 천연 소가죽 토트백 겸 크로스백 ME193MP1602B
 
-![메트로시티가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/01c8/b36c85941cf521c09d2edf3c696defe334238095b6aeb11875ffe4c7ad6c.jpg)
+[![메트로시티가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/01c8/b36c85941cf521c09d2edf3c696defe334238095b6aeb11875ffe4c7ad6c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7554712158&traceid=V0-153&itemId=19889751344&vendorItemId=86990058882)
 
 
 👍 [메트로시티 여성 블랙 천연 소가죽 토트백 겸 크로스백 ME193MP1602B <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7554712158&traceid=V0-153&itemId=19889751344&vendorItemId=86990058882) 👌 
@@ -113,7 +113,7 @@ pin: true
 
 ## 5. 코코린느 데일리 퀼팅 체인 미니 크로스백 (4컬러)
 
-![메트로시티가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4b37/ceb003342740cdd0060128f5cbc69dbf3f1d95d48b037e6ec9290d6cc0cf.jpg)
+[![메트로시티가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4b37/ceb003342740cdd0060128f5cbc69dbf3f1d95d48b037e6ec9290d6cc0cf.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7478442427&traceid=V0-153&itemId=19528979444&vendorItemId=87539027950)
 
 
 👍 [코코린느 데일리 퀼팅 체인 미니 크로스백 (4컬러) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7478442427&traceid=V0-153&itemId=19528979444&vendorItemId=87539027950) 👌 
@@ -131,7 +131,7 @@ pin: true
 
 ## 6. 애드에딧 리안느 데일리 숄더백
 
-![메트로시티가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/zhxcf4td/3744728128f344b4939a4606c8d309b5.jpg)
+[![메트로시티가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/zhxcf4td/3744728128f344b4939a4606c8d309b5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6525975387&traceid=V0-153&itemId=14477679301&vendorItemId=81720952940)
 
 
 👍 [애드에딧 리안느 데일리 숄더백 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6525975387&traceid=V0-153&itemId=14477679301&vendorItemId=81720952940) 👌 
@@ -149,7 +149,7 @@ pin: true
 
 ## 7. 메트로시티 여성 블랙 천연 소가죽 크로스백 ME203MQ3074B
 
-![메트로시티가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/3bdf/a5c6748e9e38a8f051bbeb60e71913ae8b602f8b4faf4470765d207e5580.jpg)
+[![메트로시티가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/3bdf/a5c6748e9e38a8f051bbeb60e71913ae8b602f8b4faf4470765d207e5580.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7545951164&traceid=V0-153&itemId=19847829719&vendorItemId=86949096141)
 
 
 👍 [메트로시티 여성 블랙 천연 소가죽 크로스백 ME203MQ3074B <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7545951164&traceid=V0-153&itemId=19847829719&vendorItemId=86949096141) 👌 
@@ -167,7 +167,7 @@ pin: true
 
 ## 8. 메트로시티 여성 블랙 천연 소가죽 토트백 겸 크로스백 스몰 ME231MQ3171B
 
-![메트로시티가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/5cd8/47a2d0000894679465ca76f3caa5d336a99a15ddf81002c6bf9aed303430.jpg)
+[![메트로시티가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/5cd8/47a2d0000894679465ca76f3caa5d336a99a15ddf81002c6bf9aed303430.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7544835367&traceid=V0-153&itemId=19842409718&vendorItemId=86943907680)
 
 
 👍 [메트로시티 여성 블랙 천연 소가죽 토트백 겸 크로스백 스몰 ME231MQ3171B <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7544835367&traceid=V0-153&itemId=19842409718&vendorItemId=86943907680) 👌 
@@ -185,7 +185,7 @@ pin: true
 
 ## 9. 퀸앤조이 블랙 포레스트 스카프 사각 숄더 토드백
 
-![메트로시티가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e5a4/09b45032ae9300626064ead0a7b614e95f45461fb9168914ff63386252a9.jpg)
+[![메트로시티가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e5a4/09b45032ae9300626064ead0a7b614e95f45461fb9168914ff63386252a9.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6469102656&traceid=V0-153&itemId=14111902471&vendorItemId=81904780549)
 
 
 👍 [퀸앤조이 블랙 포레스트 스카프 사각 숄더 토드백 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6469102656&traceid=V0-153&itemId=14111902471&vendorItemId=81904780549) 👌 
@@ -203,7 +203,7 @@ pin: true
 
 ## 10. [메트로시티] 숄더 겸용 크로스 M213MF1975Z
 
-![메트로시티가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b7c4/8028aeffb0e206aa1a11b2cc106581e201e3c50979734330f5b132483dda.jpg)
+[![메트로시티가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b7c4/8028aeffb0e206aa1a11b2cc106581e201e3c50979734330f5b132483dda.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6800509837&traceid=V0-153&itemId=16050979687&vendorItemId=80556541746)
 
 
 👍 [[메트로시티] 숄더 겸용 크로스 M213MF1975Z <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6800509837&traceid=V0-153&itemId=16050979687&vendorItemId=80556541746) 👌 

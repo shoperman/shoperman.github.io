@@ -28,7 +28,7 @@ pin: true
 
 ## 1. 샌디스크 Portable SSD E30, 1TB, 블랙
 
-![외장ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/cff1/15e42fa83ea803f965a45e5b6a8c7cdc0fad24f3010e4c6b0dfff01690a1.jpg)
+[![외장ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/cff1/15e42fa83ea803f965a45e5b6a8c7cdc0fad24f3010e4c6b0dfff01690a1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486)
 
 
 👍 [샌디스크 Portable SSD E30, 1TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486) 👌 
@@ -46,7 +46,7 @@ pin: true
 
 ## 2. SK하이닉스 Beetle X31 DRAM 탑재 외장 SSD + 전용 케이스, SKHPU3-001T, 1024GB
 
-![외장ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/05/17/14/6/53300211-1a13-4bb7-a1ba-a3c22e7d16cf.jpg)
+[![외장ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/05/17/14/6/53300211-1a13-4bb7-a1ba-a3c22e7d16cf.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7340265913&traceid=V0-153&itemId=18864341882&vendorItemId=85993249804)
 
 
 👍 [SK하이닉스 Beetle X31 DRAM 탑재 외장 SSD + 전용 케이스, SKHPU3-001T, 1024GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7340265913&traceid=V0-153&itemId=18864341882&vendorItemId=85993249804) 👌 
@@ -64,7 +64,7 @@ pin: true
 
 ## 3. 씨게이트 One Touch 외장하드 STKZ5000404 데이터복구+ 파우치 +USB케이블, 5TB, 스페이스그레이
 
-![외장ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1050416116708788-8447b6ae-d625-403a-8182-360754ee157e.jpg)
+[![외장ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1050416116708788-8447b6ae-d625-403a-8182-360754ee157e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=11271673984&vendorItemId=78548572310)
 
 
 👍 [씨게이트 One Touch 외장하드 STKZ5000404 데이터복구+ 파우치 +USB케이블, 5TB, 스페이스그레이 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=11271673984&vendorItemId=78548572310) 👌 
@@ -82,7 +82,7 @@ pin: true
 
 ## 4. 마이크론 크루셜 외장 SSD X6, 1TB, 블랙
 
-![외장ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/6584734771281337-a7fd2936-2ddf-4310-a450-4e096e9c55fa.jpg)
+[![외장ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/6584734771281337-a7fd2936-2ddf-4310-a450-4e096e9c55fa.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5054553268&traceid=V0-153&itemId=6821219856&vendorItemId=74113861376)
 
 
 👍 [마이크론 크루셜 외장 SSD X6, 1TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5054553268&traceid=V0-153&itemId=6821219856&vendorItemId=74113861376) 👌 
@@ -100,7 +100,7 @@ pin: true
 
 ## 5. [BASIX] Nvme M2 포터블 SSD 케이스, 블랙
 
-![외장ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/574d/56b602ca9dfda6a762d461c4e506bbc1e8d7c1d5c6b4f24b187d392f857c.png)
+[![외장ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/574d/56b602ca9dfda6a762d461c4e506bbc1e8d7c1d5c6b4f24b187d392f857c.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6437441055&traceid=V0-153&itemId=13920286314&vendorItemId=71256759623)
 
 
 👍 [[BASIX] Nvme M2 포터블 SSD 케이스, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6437441055&traceid=V0-153&itemId=13920286314&vendorItemId=71256759623) 👌 
@@ -118,7 +118,7 @@ pin: true
 
 ## 6. 인네트워크 SSD 외장하드 케이스 NVMe to USB 3.1, IN-SSDM2A(블랙)
 
-![외장ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2020/09/19/14/0/bb1e572a-49ee-4264-b503-5a515bc93ceb.jpg)
+[![외장ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2020/09/19/14/0/bb1e572a-49ee-4264-b503-5a515bc93ceb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2268816337&traceid=V0-153&itemId=3890384943&vendorItemId=71875010485)
 
 
 👍 [인네트워크 SSD 외장하드 케이스 NVMe to USB 3.1, IN-SSDM2A(블랙) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2268816337&traceid=V0-153&itemId=3890384943&vendorItemId=71875010485) 👌 
@@ -136,7 +136,7 @@ pin: true
 
 ## 7. 삼성전자 870 EVO SSD, 1TB, MZ-77E1T0
 
-![외장ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6730/c397077b84ab072d16f9ad0a0e6d09f85aff14ba9770addecae971732774.jpg)
+[![외장ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6730/c397077b84ab072d16f9ad0a0e6d09f85aff14ba9770addecae971732774.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=76660479253)
 
 
 👍 [삼성전자 870 EVO SSD, 1TB, MZ-77E1T0 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=76660479253) 👌 
@@ -154,7 +154,7 @@ pin: true
 
 ## 8. 샌디스크 Portable SSD E30, 2TB, 블랙
 
-![외장ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d3da/76615a884bdf9cf8b5c6e9b9280471a4f0b922e8301d1e2b4aca702d2816.jpg)
+[![외장ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d3da/76615a884bdf9cf8b5c6e9b9280471a4f0b922e8301d1e2b4aca702d2816.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=11128687210&vendorItemId=86717153439)
 
 
 👍 [샌디스크 Portable SSD E30, 2TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=11128687210&vendorItemId=86717153439) 👌 
@@ -172,7 +172,7 @@ pin: true
 
 ## 9. 아모란나 NVMe 초고속 SSD 40Gbps 외장하드 케이스 USB4 썬더볼트4 ASM2464PD
 
-![외장ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d467/a8a4a205a1d719531efe0825859816145db931dc0a5c27eed74b432581ff.jpg)
+[![외장ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d467/a8a4a205a1d719531efe0825859816145db931dc0a5c27eed74b432581ff.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7692426328&traceid=V0-153&itemId=20574317831&vendorItemId=87649587077)
 
 
 👍 [아모란나 NVMe 초고속 SSD 40Gbps 외장하드 케이스 USB4 썬더볼트4 ASM2464PD <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7692426328&traceid=V0-153&itemId=20574317831&vendorItemId=87649587077) 👌 
@@ -190,7 +190,7 @@ pin: true
 
 ## 10. 샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 1TB, 블랙, 1테라
 
-![외장ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1d70/b63f40dc37dfac3222057184d16325f4e2aacc09a91c0f61e1ba2bbfa0e4.jpg)
+[![외장ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1d70/b63f40dc37dfac3222057184d16325f4e2aacc09a91c0f61e1ba2bbfa0e4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=14902035848&vendorItemId=86702625757)
 
 
 👍 [샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 1TB, 블랙, 1테라 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=14902035848&vendorItemId=86702625757) 👌 

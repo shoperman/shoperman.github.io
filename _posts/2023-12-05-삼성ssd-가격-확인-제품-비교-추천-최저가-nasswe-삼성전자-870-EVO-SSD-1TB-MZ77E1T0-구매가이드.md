@@ -37,7 +37,7 @@ pin: true
 
 ## 1. 삼성전자 870 EVO SSD, 1TB, MZ-77E1T0
 
-![삼성ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6730/c397077b84ab072d16f9ad0a0e6d09f85aff14ba9770addecae971732774.jpg)
+[![삼성ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6730/c397077b84ab072d16f9ad0a0e6d09f85aff14ba9770addecae971732774.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=76660479253)
 
 
 👍 [삼성전자 870 EVO SSD, 1TB, MZ-77E1T0 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=76660479253) 👌 
@@ -55,7 +55,7 @@ pin: true
 
 ## 2. 삼성전자 870 EVO SATA SSD, 500GB, MZ-77E500B/KR
 
-![삼성ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/546d/022aa29f657d1bbdf3e485ff1a6c688cfa4171ee6125a4fb7ed109280701.jpg)
+[![삼성ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/546d/022aa29f657d1bbdf3e485ff1a6c688cfa4171ee6125a4fb7ed109280701.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=20103471289&vendorItemId=87238066949)
 
 
 👍 [삼성전자 870 EVO SATA SSD, 500GB, MZ-77E500B/KR <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=20103471289&vendorItemId=87238066949) 👌 
@@ -73,7 +73,7 @@ pin: true
 
 ## 3. 씨게이트 One Touch 외장하드 STKZ5000404 데이터복구+ 파우치 +USB케이블, 5TB, 스페이스그레이
 
-![삼성ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1050416116708788-8447b6ae-d625-403a-8182-360754ee157e.jpg)
+[![삼성ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1050416116708788-8447b6ae-d625-403a-8182-360754ee157e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=11271673984&vendorItemId=78548572310)
 
 
 👍 [씨게이트 One Touch 외장하드 STKZ5000404 데이터복구+ 파우치 +USB케이블, 5TB, 스페이스그레이 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=11271673984&vendorItemId=78548572310) 👌 
@@ -91,7 +91,7 @@ pin: true
 
 ## 4. 삼성전자 공식인증 포터블 T7 외장 SSD 2TB 블루/레드/그레이 MU-PC2T0 정품, 블루
 
-![삼성ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/123b/848bb90e09926df2fdcaf9dcd7129742ab357bf37aee0a33880e1a30c675.jpg)
+[![삼성ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/123b/848bb90e09926df2fdcaf9dcd7129742ab357bf37aee0a33880e1a30c675.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1593334322&traceid=V0-153&itemId=12753641742&vendorItemId=85463603048)
 
 
 👍 [삼성전자 공식인증 포터블 T7 외장 SSD 2TB 블루/레드/그레이 MU-PC2T0 정품, 블루 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1593334322&traceid=V0-153&itemId=12753641742&vendorItemId=85463603048) 👌 
@@ -109,7 +109,7 @@ pin: true
 
 ## 5. M.2 SATA PCI-Express SSD 변환 아답터 카드 데스크탑용 NVMe NGFF 겸용 LS-PCIE-M2SATAN
 
-![삼성ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1052095564379969-83ffebd9-3696-4721-b5d5-1d1af3124f8b.jpg)
+[![삼성ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1052095564379969-83ffebd9-3696-4721-b5d5-1d1af3124f8b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5240021570&traceid=V0-153&itemId=7399007603&vendorItemId=74690028855)
 
 
 👍 [M.2 SATA PCI-Express SSD 변환 아답터 카드 데스크탑용 NVMe NGFF 겸용 LS-PCIE-M2SATAN <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5240021570&traceid=V0-153&itemId=7399007603&vendorItemId=74690028855) 👌 
@@ -127,7 +127,7 @@ pin: true
 
 ## 6. WD NEW My Passport Gen3 외장하드, 2TB, 화이트
 
-![삼성ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e4ca/0511fb51abf24eae935bb868612234ae5786e54457a1720f9e044bf8d324.jpg)
+[![삼성ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e4ca/0511fb51abf24eae935bb868612234ae5786e54457a1720f9e044bf8d324.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7099842836&traceid=V0-153&itemId=18339463129&vendorItemId=86984910727)
 
 
 👍 [WD NEW My Passport Gen3 외장하드, 2TB, 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7099842836&traceid=V0-153&itemId=18339463129&vendorItemId=86984910727) 👌 
@@ -145,7 +145,7 @@ pin: true
 
 ## 7. 삼성전자 공식인증 포터블 외장SSD T7실드 2TB 블루/블랙/베이지 MU-PE2T0 정품, 블루(MU-PE2T0R/WW)
 
-![삼성ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0eac/c5abb45002b9f7f8fd813b2f75c2a0c7a2d808a9ee317d27d3fdddefc332.jpg)
+[![삼성ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0eac/c5abb45002b9f7f8fd813b2f75c2a0c7a2d808a9ee317d27d3fdddefc332.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6888265108&traceid=V0-153&itemId=19104754137&vendorItemId=87051755932)
 
 
 👍 [삼성전자 공식인증 포터블 외장SSD T7실드 2TB 블루/블랙/베이지 MU-PE2T0 정품, 블루(MU-PE2T0R/WW) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6888265108&traceid=V0-153&itemId=19104754137&vendorItemId=87051755932) 👌 
@@ -163,7 +163,7 @@ pin: true
 
 ## 8. 삼성전자 외장SSD 2TB T7 Portable 2테라 USB3.2 Type-C 휴대용 외장하드 대리점정품, 타이탄그레이
 
-![삼성ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1241/dd489517b3c4d7b6726e042a1114974bc7315335f30a5eba2de5eeb60661.jpg)
+[![삼성ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1241/dd489517b3c4d7b6726e042a1114974bc7315335f30a5eba2de5eeb60661.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1593334322&traceid=V0-153&itemId=19744235348&vendorItemId=86847772950)
 
 
 👍 [삼성전자 외장SSD 2TB T7 Portable 2테라 USB3.2 Type-C 휴대용 외장하드 대리점정품, 타이탄그레이 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1593334322&traceid=V0-153&itemId=19744235348&vendorItemId=86847772950) 👌 
@@ -181,7 +181,7 @@ pin: true
 
 ## 9. WD NEW My Passport Gen3 외장하드, 4TB, 레드
 
-![삼성ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9a92/964ceea1f18c4b2517a1feca14420f9ab55e8faedbaca26aeac63cb5765d.jpg)
+[![삼성ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9a92/964ceea1f18c4b2517a1feca14420f9ab55e8faedbaca26aeac63cb5765d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7099842836&traceid=V0-153&itemId=9425947801&vendorItemId=86984923571)
 
 
 👍 [WD NEW My Passport Gen3 외장하드, 4TB, 레드 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7099842836&traceid=V0-153&itemId=9425947801&vendorItemId=86984923571) 👌 
@@ -199,7 +199,7 @@ pin: true
 
 ## 10. 삼성전자 외장SSD T7, 타이탄 그레이, 1TB
 
-![삼성ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2854/21e51f9a49600a366ca06dfae26adff9895f3763aa440945902071903098.jpg)
+[![삼성ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2854/21e51f9a49600a366ca06dfae26adff9895f3763aa440945902071903098.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1593334322&traceid=V0-153&itemId=2985891923&vendorItemId=86225061577)
 
 
 👍 [삼성전자 외장SSD T7, 타이탄 그레이, 1TB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1593334322&traceid=V0-153&itemId=2985891923&vendorItemId=86225061577) 👌 

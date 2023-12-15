@@ -31,7 +31,7 @@ pin: true
 
 ## 1. 이큐메딕 항균 거치형 듀얼 블루투스 키보드 마우스 세트, 일반형, Sanitize-BS5, 핑크
 
-![블루투스키보드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/12821144941282302-36de155f-7223-417e-b62d-de62392fd0bc.jpg)
+[![블루투스키보드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/12821144941282302-36de155f-7223-417e-b62d-de62392fd0bc.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6196887463&traceid=V0-153&itemId=12270448219&vendorItemId=79540887735)
 
 
 👍 [이큐메딕 항균 거치형 듀얼 블루투스 키보드 마우스 세트, 일반형, Sanitize-BS5, 핑크 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6196887463&traceid=V0-153&itemId=12270448219&vendorItemId=79540887735) 👌 
@@ -49,7 +49,7 @@ pin: true
 
 ## 2. 로지텍 블루투스 멀티 디바이스 키보드, 퓨어화이트, K380
 
-![블루투스키보드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2019/07/18/17/7/ec2f4cb6-1df7-4525-bff3-5c790315553e.jpg)
+[![블루투스키보드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2019/07/18/17/7/ec2f4cb6-1df7-4525-bff3-5c790315553e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4858638195&traceid=V0-153&itemId=6297566306&vendorItemId=5097509883)
 
 
 👍 [로지텍 블루투스 멀티 디바이스 키보드, 퓨어화이트, K380 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4858638195&traceid=V0-153&itemId=6297566306&vendorItemId=5097509883) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. PYHO 블루투스키보드 휴대용 기계식 키보드 2.4G 무선식 이노베이션 디자인 게이밍키보드, 스카이블루, PYHO-GK65, 텐키리스
 
-![블루투스키보드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/5f3d/57ae0b8ef7773e10a7c99b54f686b0d24b563c21998c3221718603e6a810.jpg)
+[![블루투스키보드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/5f3d/57ae0b8ef7773e10a7c99b54f686b0d24b563c21998c3221718603e6a810.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7164856705&traceid=V0-153&itemId=18038482269&vendorItemId=86272715361)
 
 
 👍 [PYHO 블루투스키보드 휴대용 기계식 키보드 2.4G 무선식 이노베이션 디자인 게이밍키보드, 스카이블루, PYHO-GK65, 텐키리스 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7164856705&traceid=V0-153&itemId=18038482269&vendorItemId=86272715361) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. 코시 베이직 블루투스 키보드, KB1352BT, 실버, 텐키리스
 
-![블루투스키보드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1668681132274920-e6059d4d-4814-41ad-a11a-04ee52de8a95.jpg)
+[![블루투스키보드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1668681132274920-e6059d4d-4814-41ad-a11a-04ee52de8a95.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1426742&traceid=V0-153&itemId=6198698&vendorItemId=3008010221)
 
 
 👍 [코시 베이직 블루투스 키보드, KB1352BT, 실버, 텐키리스 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1426742&traceid=V0-153&itemId=6198698&vendorItemId=3008010221) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. UBAcc BK1 울트라슬림 블루투스 8인치 휴대용 키보드, 8인치 키보드, 민트
 
-![블루투스키보드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/29b8/4492dc1dbc10641b186374d2b2ec07f539051b11315a74c64e5790152723.jpg)
+[![블루투스키보드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/29b8/4492dc1dbc10641b186374d2b2ec07f539051b11315a74c64e5790152723.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6776878639&traceid=V0-153&itemId=15925769592&vendorItemId=83132964412)
 
 
 👍 [UBAcc BK1 울트라슬림 블루투스 8인치 휴대용 키보드, 8인치 키보드, 민트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6776878639&traceid=V0-153&itemId=15925769592&vendorItemId=83132964412) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. 스마텍 리시버타입 무선 멤브레인 키보드, 일반형, 블랙, STK-200
 
-![블루투스키보드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/05/19/18/4/eeb4c9ea-05da-444b-ae77-24192741bb85.jpg)
+[![블루투스키보드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/05/19/18/4/eeb4c9ea-05da-444b-ae77-24192741bb85.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7345681705&traceid=V0-153&itemId=18890638014&vendorItemId=86018742503)
 
 
 👍 [스마텍 리시버타입 무선 멤브레인 키보드, 일반형, 블랙, STK-200 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7345681705&traceid=V0-153&itemId=18890638014&vendorItemId=86018742503) 👌 
@@ -139,7 +139,7 @@ pin: true
 
 ## 7. PYHO 블루투스키보드 휴대용 기계식 키보드 2.4G 무선식 이노베이션 디자인 게이밍키보드, 크림색, PYHO-GK65, 텐키리스
 
-![블루투스키보드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/04de/ca99394293d797520ff868e7161f54230559177ac6af0288effb1122795e.jpg)
+[![블루투스키보드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/04de/ca99394293d797520ff868e7161f54230559177ac6af0288effb1122795e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7164856705&traceid=V0-153&itemId=18038482271&vendorItemId=86739757038)
 
 
 👍 [PYHO 블루투스키보드 휴대용 기계식 키보드 2.4G 무선식 이노베이션 디자인 게이밍키보드, 크림색, PYHO-GK65, 텐키리스 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7164856705&traceid=V0-153&itemId=18038482271&vendorItemId=86739757038) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. 로지텍 블루투스 멀티 디바이스 키보드, K380, 파우더 핑크
 
-![블루투스키보드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2019/07/18/17/7/3ea50cba-317b-4862-9fa5-57d1af1a8cdd.jpg)
+[![블루투스키보드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2019/07/18/17/7/3ea50cba-317b-4862-9fa5-57d1af1a8cdd.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1203619139&traceid=V0-153&itemId=2189155377&vendorItemId=5097509929)
 
 
 👍 [로지텍 블루투스 멀티 디바이스 키보드, K380, 파우더 핑크 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1203619139&traceid=V0-153&itemId=2189155377&vendorItemId=5097509929) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. UB BK1 휴대용 무선 블루투스 키보드 슬림형, 스몰, 옐로우
 
-![블루투스키보드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f5fa/cfea9546cbab84aed78574ba4939ade3ed752f78ce7d1a5965a653a3643a.jpg)
+[![블루투스키보드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f5fa/cfea9546cbab84aed78574ba4939ade3ed752f78ce7d1a5965a653a3643a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7045923575&traceid=V0-153&itemId=17436778902&vendorItemId=83175099907)
 
 
 👍 [UB BK1 휴대용 무선 블루투스 키보드 슬림형, 스몰, 옐로우 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7045923575&traceid=V0-153&itemId=17436778902&vendorItemId=83175099907) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 10. 아이노트 멀티 페어링 블루투스 키보드 + 키스킨, X-KEY 38BT, 1개, 화이트
 
-![블루투스키보드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1323209081820390-a1acc290-3a92-4b03-9016-aec1092cf2d1.jpg)
+[![블루투스키보드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1323209081820390-a1acc290-3a92-4b03-9016-aec1092cf2d1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7156604618&traceid=V0-153&itemId=18002849348&vendorItemId=70777293432)
 
 
 👍 [아이노트 멀티 페어링 블루투스 키보드 + 키스킨, X-KEY 38BT, 1개, 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7156604618&traceid=V0-153&itemId=18002849348&vendorItemId=70777293432) 👌 

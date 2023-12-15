@@ -28,7 +28,7 @@ pin: true
 
 ## 1. 보다나 글램웨이브 봉고데기 프리볼트 36mm Bong FD36, 화이트, VC19MWHFV
 
-![보다나면세점 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/16611702099945-48153ae8-50ea-4b73-b402-2472dd60d400.jpg)
+[![보다나면세점 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/16611702099945-48153ae8-50ea-4b73-b402-2472dd60d400.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1946963042&traceid=V0-153&itemId=3252914503&vendorItemId=71239990400)
 
 
 👍 [보다나 글램웨이브 봉고데기 프리볼트 36mm Bong FD36, 화이트, VC19MWHFV <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1946963042&traceid=V0-153&itemId=3252914503&vendorItemId=71239990400) 👌 
@@ -47,7 +47,7 @@ pin: true
 
 ## 2. 보다나 프로 살롱 2in1 고데기 VCS22SCB, 멜란지그린
 
-![보다나면세점 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/09/12/16/3/35aea306-03bd-4588-b249-ddcb5c4702f6.jpg)
+[![보다나면세점 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/09/12/16/3/35aea306-03bd-4588-b249-ddcb5c4702f6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7592906565&traceid=V0-153&itemId=20067971717&vendorItemId=87163802469)
 
 
 👍 [보다나 프로 살롱 2in1 고데기 VCS22SCB, 멜란지그린 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7592906565&traceid=V0-153&itemId=20067971717&vendorItemId=87163802469) 👌 
@@ -66,7 +66,7 @@ pin: true
 
 ## 3. 보다나 프리볼트 소프트바 판고데기 VS23WIMFV, 아이보리 무드
 
-![보다나면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/06/14/15/7/77ef5c2f-2c2d-4ad0-8fff-6ebcdd6e5ef1.jpg)
+[![보다나면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/06/14/15/7/77ef5c2f-2c2d-4ad0-8fff-6ebcdd6e5ef1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7400844112&traceid=V0-153&itemId=19155353555&vendorItemId=86274188165)
 
 
 👍 [보다나 프리볼트 소프트바 판고데기 VS23WIMFV, 아이보리 무드 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7400844112&traceid=V0-153&itemId=19155353555&vendorItemId=86274188165) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. 보다나 컴팩트 물결고데기 32mm VCF23M, 파우더블루
 
-![보다나면세점 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/22a3/ce2b163e034ad13f15c93a2163536489d7d899a59927de8000fe6afd0ba1.png)
+[![보다나면세점 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/22a3/ce2b163e034ad13f15c93a2163536489d7d899a59927de8000fe6afd0ba1.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7546414611&traceid=V0-153&itemId=19849796294&vendorItemId=87756025677)
 
 
 👍 [보다나 컴팩트 물결고데기 32mm VCF23M, 파우더블루 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7546414611&traceid=V0-153&itemId=19849796294&vendorItemId=87756025677) 👌 
@@ -104,7 +104,7 @@ pin: true
 
 ## 5. 리비엔 프리미엄 고데기 30mm 넓은 와이드 열판 판고데기
 
-![보다나면세점 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b156/00e613ea475bcad30db0b0cb022f820e74d5bf59723f581be9eb2729d817.png)
+[![보다나면세점 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b156/00e613ea475bcad30db0b0cb022f820e74d5bf59723f581be9eb2729d817.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6398398197&traceid=V0-153&itemId=13672119062&vendorItemId=80924127833)
 
 
 👍 [리비엔 프리미엄 고데기 30mm 넓은 와이드 열판 판고데기 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6398398197&traceid=V0-153&itemId=13672119062&vendorItemId=80924127833) 👌 
@@ -123,7 +123,7 @@ pin: true
 
 ## 6. 보다나 소프트바 판고데기 슬림 Pan FD05R, 멜란지그린
 
-![보다나면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/09/18/16/5/a96c3644-5ad1-4198-ba08-7c9c83ae0046.jpg)
+[![보다나면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/09/18/16/5/a96c3644-5ad1-4198-ba08-7c9c83ae0046.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7606080588&traceid=V0-153&itemId=20132529374&vendorItemId=87226462163)
 
 
 👍 [보다나 소프트바 판고데기 슬림 Pan FD05R, 멜란지그린 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7606080588&traceid=V0-153&itemId=20132529374&vendorItemId=87226462163) 👌 
@@ -142,7 +142,7 @@ pin: true
 
 ## 7. 보다나 모이스처 스팀 와이드 판고데기 VS23WSBGFV, 블루그레이
 
-![보다나면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/06/14/14/6/e0b298a9-e8df-4e1e-a3c5-ec28918fecb6.jpg)
+[![보다나면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/06/14/14/6/e0b298a9-e8df-4e1e-a3c5-ec28918fecb6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7400726310&traceid=V0-153&itemId=19154820022&vendorItemId=86273668336)
 
 
 👍 [보다나 모이스처 스팀 와이드 판고데기 VS23WSBGFV, 블루그레이 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7400726310&traceid=V0-153&itemId=19154820022&vendorItemId=86273668336) 👌 
@@ -161,7 +161,7 @@ pin: true
 
 ## 8. 보다나 트리플 플로우 물결 고데기 40mm, NTp40, 크리미블루
 
-![보다나면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/dvyzhezx/56e412a71ccf4c89970a4c421cda91b4.jpg)
+[![보다나면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/dvyzhezx/56e412a71ccf4c89970a4c421cda91b4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6145274977&traceid=V0-153&itemId=11820837583&vendorItemId=79094318349)
 
 
 👍 [보다나 트리플 플로우 물결 고데기 40mm, NTp40, 크리미블루 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6145274977&traceid=V0-153&itemId=11820837583&vendorItemId=79094318349) 👌 
@@ -180,7 +180,7 @@ pin: true
 
 ## 9. 진 어메이징 전문가용 고데기 매직기 미용실 판 고대기 추천 프리볼트 온도조절, 진 어메이징 나노세라믹 매직기
 
-![보다나면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/498d/ce52ac5e6fb9d5bc3eebcab7402b3bf03e27a983bdbd6299ed1d5326443a.jpg)
+[![보다나면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/498d/ce52ac5e6fb9d5bc3eebcab7402b3bf03e27a983bdbd6299ed1d5326443a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7608712643&traceid=V0-153&itemId=20145917919&vendorItemId=4465515198)
 
 
 👍 [진 어메이징 전문가용 고데기 매직기 미용실 판 고대기 추천 프리볼트 온도조절, 진 어메이징 나노세라믹 매직기 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7608712643&traceid=V0-153&itemId=20145917919&vendorItemId=4465515198) 👌 
@@ -199,7 +199,7 @@ pin: true
 
 ## 10. 보다나 소프트바 판고데기 프리볼트 Pan FD10, 화이트그레이, VS21WWGFV
 
-![보다나면세점 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2888322846407133-ad30b7ae-b420-47ec-8f2f-07fcf82f5d6a.png)
+[![보다나면세점 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2888322846407133-ad30b7ae-b420-47ec-8f2f-07fcf82f5d6a.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4328186569&traceid=V0-153&itemId=6689484257&vendorItemId=73983155370)
 
 
 👍 [보다나 소프트바 판고데기 프리볼트 Pan FD10, 화이트그레이, VS21WWGFV <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4328186569&traceid=V0-153&itemId=6689484257&vendorItemId=73983155370) 👌 
